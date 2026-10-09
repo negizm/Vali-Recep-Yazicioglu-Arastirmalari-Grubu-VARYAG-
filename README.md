@@ -9,3 +9,31 @@ Araştırma grubumuz; kamu yönetimi, liderlik, girişimci bürokrasi, yerel yö
 Sayfamızda yürütülen çalışmalar, etkinlikler ve akademik paylaşımlara ilişkin güncel bilgilere ulaşabilir; bu ortak akademik çabaya katkı sunabilirsiniz.
 
 Arş. Gör. Muhammet Negiz 
+
+
+
+# Makaleler
+
+-Çıtaları Yükselten Vali: Recep Yazıcıoğlu, BAYÜ Sosyal Bilimler Dergisi, cilt.8, sa.15, ss.60-65, 2025 (Hakemli Dergi) 
+
+-UNUTULMAYAN FIRTINA VALİ RECEP YAZICIOĞLU, Novus Orbis: Siyaset Bilimi Ve Uluslararası İlişkiler Dergisi, cilt.6, sa.1, ss.153-159, 2024 (Hakemli Dergi)   
+
+
+# Hakemli Bilimsel Toplantılarda Yayımlanmış Bildiriler
+-Vali Recep Yazıcıoğlu’nun Bir Bölgesel Havayolu Şirketi Girişimi: Can Air Örneği, İstanbul Sabahattin Zaim Üniversitesi Lisansüstü Öğrenci Kongresi, İstanbul, Türkiye, 16 - 18 Haziran 2023, ss.40, (Özet Bildiri)   
+
+-Bir Spor Dalıyla Hayata Geçirilen Üç Girişimcilik: Erzincan’da Rafting, IX. Yıldız Uluslararası Sosyal Bilimler Kongresi, Yıldız Teknik Üniversitesi Sosyal Bilimler Enstitüsü, İstanbul, Türkiye, 26 - 27 Aralık 2022, ss.84, (Özet Bildiri)
+
+
+# Ansiklopedide Bölümler
+-Recep Yazıcıoğlu, Online Türkiye Turizm Ansiklopedisi, Kozak, N. (Editör), ss.8590, 2024 
+
+
+# Diğer Yayınlar
+-Sessizliğin İçinden Bir Kitap: Vali Recep Yazıcıoğlu’nun Liderlik Sırlarını Anlattı, Diğer, ss.1-6, 2026   
+
+-Sözün Özü'nde Vali Recep Yazıcıoğlu, Diğer, ss.1-3, 2022   
+
+-Erzincan Sözlü Tarih Çalışmasında Vali Recep Yazıcıoğlu, Diğer, ss.1-34, 2022   
+
+
